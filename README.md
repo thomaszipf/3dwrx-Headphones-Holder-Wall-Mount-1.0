@@ -1,4 +1,4 @@
-# 3dwrx-Headphones-Holder-Wall-Mount-1.0
+# 3dwrx-Headphones-Holder-Wall-Mount-V1.0
 
 
 Link to the product on Thingiverse:
