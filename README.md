@@ -7,6 +7,7 @@ https://www.thingiverse.com/thing:3350556/files
 
 
 **Why this design?**
+
 I need honestly to say that I did see something like this before in the internet. So, I decided to make my own version since it was quite different as of that time. The Idea to make it came while I was for shopping, grabbing some Headphones to trail one vs. the other and it was a mess to place them anywhere. So, I was forced to make my mind on where to put the headphones. Here we are.
 Unfortunately I did not find the original design, so I’m sorry to not be able to mark that as a remix.
 
